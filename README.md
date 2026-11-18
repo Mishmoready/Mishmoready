@@ -11,7 +11,7 @@
 
 - 📫 How to reach me: [moses.b.cook@gmail.com](mailto:moses.b.cook@gmail.com)
 
-- ⚡ Fun fact: **I went from 180 kg to running, with 700+ runs logged since 2024. Next up: the Christchurch Marathon, April 2027 🏅**
+- ⚡ Fun fact: **I went from 180 kg to 96 kg's to running, with 700+ runs logged since 2024. Next up: the Christchurch Marathon, April 2027 🏅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
